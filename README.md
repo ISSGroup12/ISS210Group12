@@ -1,5 +1,6 @@
 # ISS210FinalGroup12
 Images and PDF's
+
 Race and Poverty in America.pdf  https://doi.org/10.1086/297771 
 Title Image.jpg  https://eliyah.com/the-media-feeding-our-minds-warring-the-spirit/
 covid-19.png  https://www.usatoday.com/story/news/politics/2021/04/22/covid-19-hate-crime-bill-protect-asian-americans-passes-senate/7290109002/
