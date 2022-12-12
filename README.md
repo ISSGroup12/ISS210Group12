@@ -17,7 +17,7 @@ trump.jpg  and trump3.jpg  https://www.adl.org/blog/white-supremacists-extremist
 
 protest.jpg  https://www.oregonlive.com/portland/2020/06/portland-protests-to-return-for-28th-day-rounding-out-4-consecutive-weeks-of-demonstrations.html
 
-Links, articles etc:
+Links, articles etc that were used or referenced:
 
 https://www.washingtonpost.com/world/national-security/ex-wife-of-suspected-orlando-shooter-he-beat-me/2016/06/12/8a1963b4-30b8-11e6-8ff7-7b6c1998b7a0_story.html
 
