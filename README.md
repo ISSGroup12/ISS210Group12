@@ -1,7 +1,7 @@
 # ISS210FinalGroup12
 Images and PDF's
 
-Race and Poverty in America.pdf  https://doi.org/10.1086/297771 
+RACE AND POVERTY IN AMERICA: PUBLIC MISPERCEPTIONS AND THE AMERICAN NEWS MEDIA https://doi.org/10.1086/297771 
 
 Title Image.jpg  https://eliyah.com/the-media-feeding-our-minds-warring-the-spirit/
 
