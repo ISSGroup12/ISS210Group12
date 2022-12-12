@@ -27,6 +27,8 @@ https://news.harvard.edu/gazette/story/2021/09/muslim-americans-reflect-on-the-i
 
 https://www.youtube.com/watch?v=cCGmeDO3ALI
 
+https://www.youtube.com/watch?v=-sz0KY-3PbQ
+
 https://ucr.fbi.gov/hate-crime/2001/hatecrime01.pdf
 
 https://www.youtube.com/watch?v=EY39fkmqKBM
